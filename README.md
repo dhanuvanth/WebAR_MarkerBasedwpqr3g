@@ -1,1 +1,0 @@
-# WebAR_MarkerBasedwpqr3g
